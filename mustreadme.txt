@@ -1,0 +1,1 @@
+ manager is a good guy
